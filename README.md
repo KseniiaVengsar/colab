@@ -1,3 +1,1 @@
 # Collaboration
-
-life is beautiful
